@@ -1,1 +1,1 @@
-https://veronicatkachenko.github.io/site/
+https://veronicatkachenko.github.io/landing-page__EVCLID/
